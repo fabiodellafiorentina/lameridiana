@@ -1,2 +1,0 @@
-# Residenza "La Meridiana" Abbiategrasso
-

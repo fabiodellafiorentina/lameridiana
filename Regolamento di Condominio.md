@@ -1,7 +1,5 @@
 # Regolamento contrattuale di condominio Residenza "La Meridiana" Edifici A-B Abbiategrasso
 
-# Regolamento Condominiale
-
 ## 1. Premesse Generali
 
 1.1 Il presente regolamento disciplina la gestione e l'uso delle parti comuni del condominio, nonché i diritti e doveri dei Condomini, al fine di assicurare la convivenza civile e la corretta amministrazione dell’immobile.

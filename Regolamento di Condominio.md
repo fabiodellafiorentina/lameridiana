@@ -1,3 +1,7 @@
+**Regolamento contrattuale di condominio**
+*Residenza "La Meridiana" Edifici A-B*
+*Abbiategrasso*
+
 **1. Disposizioni Generali**  
 
 **1.1** Forma oggetto del presente Regolamento di Condominio il complesso immobiliare residenziale denominato "Residenza La Meridiana Edifici A-B", sito in Abbiategrasso, nuova via del Piano di Lottizzazione.

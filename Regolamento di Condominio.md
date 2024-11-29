@@ -1,5 +1,7 @@
 **Regolamento contrattuale di condominio**
+
 *Residenza "La Meridiana" Edifici A-B*
+
 *Abbiategrasso*
 
 **1. Disposizioni Generali**  

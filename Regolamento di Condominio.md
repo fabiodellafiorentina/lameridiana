@@ -1,10 +1,66 @@
-**Regolamento contrattuale di condominio**
-
-*Residenza "La Meridiana" Edifici A-B*
-
-*Abbiategrasso*
+# Regolamento contrattuale di condominio Residenza "La Meridiana" Edifici A-B Abbiategrasso
 
 # Regolamento Condominiale
+
+## 1. Premesse Generali
+
+1.1 Il presente regolamento disciplina la gestione e l'uso delle parti comuni del condominio, nonché i diritti e doveri dei Condomini, al fine di assicurare la convivenza civile e la corretta amministrazione dell’immobile.
+
+1.2 Le disposizioni di questo regolamento sono vincolanti per tutti i Condomini, e gli stessi sono tenuti ad osservarle e farle osservare, con particolare riferimento alle parti comuni dell'edificio.
+
+---
+
+## 2. Parti Comuni
+
+2.1 Le parti comuni dell’edificio sono quelle indicate nell’articolo 1117 del Codice Civile, ossia quelle destinate all’uso comune dei Condomini e comprendenti, a titolo esemplificativo ma non limitativo, l’ingresso, le scale, i corridoi, i cortili, i giardini, i lastrici solari, i sottotetti e i locali per impianti e servizi comuni.
+
+2.2 Ogni Condomino ha il diritto di utilizzare le parti comuni in modo da non alterarne la destinazione e nel rispetto della destinazione d'uso generale dell’immobile.
+
+2.3 I Condomini sono obbligati a rispettare l’ordine e la pulizia nelle parti comuni e a contribuire alle spese necessarie per la loro conservazione e manutenzione.
+
+---
+
+## 3. Uso delle Parti Comuni
+
+3.1 È vietato usare le parti comuni in modo da creare danno o disagi agli altri Condomini, compromettendo l’utilizzo collettivo degli spazi.
+
+3.2 Ogni intervento sulle parti comuni, inclusi lavori di manutenzione o modifiche, deve essere deliberato dall’Assemblea e approvato secondo le modalità previste dal presente regolamento.
+
+3.3 Non è consentito occupare in modo permanente le parti comuni, salvo autorizzazione dell’Assemblea. Eventuali installazioni o modifiche alle parti comuni devono essere eseguite solo dopo delibera assembleare.
+
+---
+
+## 4. Spese Condominiali
+
+4.1 Ogni Condomino è tenuto a contribuire alle spese condominiali in base alla quota millesimale, determinata in proporzione alla superficie della sua unità immobiliare rispetto al totale dell'edificio.
+
+4.2 Le spese ordinarie sono quelle necessarie per il funzionamento e la manutenzione ordinaria delle parti comuni, mentre le spese straordinarie riguardano interventi di manutenzione straordinaria e riparazioni urgenti.
+
+4.3 Le spese condominiali devono essere pagate tempestivamente, seguendo le modalità e le scadenze stabilite dall’Amministratore. In caso di ritardo, sono previsti interessi di mora e altre sanzioni.
+
+---
+
+## 5. Lavori di Manutenzione
+
+5.1 I lavori di manutenzione ordinaria sulle parti comuni sono a carico di tutti i Condomini e devono essere eseguiti in base alla necessità di conservare l'immobile in buono stato di conservazione.
+
+5.2 I lavori di manutenzione straordinaria, che riguardano riparazioni importanti e interventi non programmabili, devono essere approvati dall'Assemblea, con la maggioranza prevista dal presente regolamento.
+
+5.3 Ogni intervento sui singoli appartamenti, che possa avere un impatto sulle parti comuni (es. lavori sui muri portanti, impianti di riscaldamento, ecc.), deve essere preventivamente comunicato all’Amministratore.
+
+---
+
+## 6. Comportamenti e Convivenza
+
+6.1 Ogni Condomino deve comportarsi in modo da non arrecare disturbo agli altri, evitando rumori eccessivi, comportamenti molesti o dannosi per la sicurezza e il benessere degli altri.
+
+6.2 È vietato lasciare oggetti nelle parti comuni che possano ostacolare il passaggio o la fruizione degli spazi da parte degli altri Condomini.
+
+6.3 Ogni Condomino deve rispettare la destinazione d'uso della propria unità immobiliare e delle parti comuni, senza modificarla senza il consenso dell'Assemblea.
+
+6.4 In caso di comportamenti che arrecano disturbo o danneggiano l’edificio o le parti comuni, l’Amministratore può adottare provvedimenti, anche sanzionatori, previo avviso al Condomino responsabile.
+
+---
 
 ## 7. Sottotetti
 
